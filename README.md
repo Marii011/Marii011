@@ -12,4 +12,5 @@ balliitto@gmail.com
 
 @balliitto
 
-![](![image](![image](https://github.com/user-attachments/assets/15b86f82-d152-44e6-8eaf-52b080e8808b))
+![](https://github.com/user-attachments/assets/a339ca21-bf57-4eed-9717-528488326503)
+
